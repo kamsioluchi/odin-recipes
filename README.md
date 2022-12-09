@@ -1,1 +1,1 @@
-# odin-recipes
+Chicken Fried Rice Recipes
