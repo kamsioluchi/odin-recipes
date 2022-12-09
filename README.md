@@ -1,1 +1,1 @@
-Chicken Fried Rice
+Chicken Fried Rice Recipes
